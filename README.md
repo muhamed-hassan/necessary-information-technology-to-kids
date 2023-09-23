@@ -1,2 +1,1 @@
-# necessary-information-technology-to-kids
-Amount of information technology that should be given to kids in school
+#### Please visit the wiki for more info https://github.com/muhamed-hassan/necessary-information-technology-to-kids/wiki
