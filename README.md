@@ -6,7 +6,7 @@
 
 **Level 1** of information technology knowledge.
 
-You have to go to [**L 2**](https://github.com/muhamed-hassan/l2-of-information-technology/wiki) after successful completion ✅.
+You have to go to [**L 2**](https://github.com/muhamed-hassan/l2-of-information-technology) after successful completion ✅.
 
 ***
 
