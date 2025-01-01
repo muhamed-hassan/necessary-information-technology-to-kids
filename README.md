@@ -6,6 +6,8 @@
 
 **Level 1** of information technology knowledge.
 
+You have to go to [**L 2**](https://github.com/muhamed-hassan/l2-of-information-technology/wiki) after successful completion ✅.
+
 ***
 
 ![cute-little-kids-studying-together-cartoon-illustration-vector](https://github.com/muhamed-hassan/necessary-information-technology-to-kids/assets/17825804/f4a98afe-4228-4295-af51-38e546427327)
