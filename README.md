@@ -1,4 +1,4 @@
-#### Please visit the wiki for more info https://github.com/muhamed-hassan/necessary-information-technology-to-kids/wiki
+#### Please visit the [wiki](https://github.com/muhamed-hassan/necessary-information-technology-to-kids/wiki) for more info
 
 ***
 
