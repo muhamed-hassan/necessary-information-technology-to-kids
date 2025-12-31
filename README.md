@@ -4,6 +4,8 @@
 
 **`Difficulty Level`**: [Research and development center](https://en.wikipedia.org/wiki/Research_and_development) over the planet 🌏 🌎 🌍.
 
+***
+
 **Level 1** of information technology knowledge.
 
 You have to go to [**L 2**](https://github.com/muhamed-hassan/l2-of-information-technology) after successful completion ✅.
